@@ -3,3 +3,4 @@
 - 🌱 I’m currently learning MERN
 - 📫 How to reach me dshreya943@gmail.com
 - 😄 Pronouns: She/Her
+- STILL LEARNING (COZ U ALWAYS LEARN SOMETHING NEW EVERYDAY)

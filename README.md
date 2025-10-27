@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @shreya-das9
 - 👀 I’m interested in Creating Great websites
-- 🌱 I’m currently learning MERN
+- 🌱  MERN enthuuu
 - 📫 How to reach me dshreya943@gmail.com
 - 😄 Pronouns: She/Her
 - STILL LEARNING (COZ U ALWAYS LEARN SOMETHING NEW EVERYDAY)
